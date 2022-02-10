@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Babanmu
-- 👀 I’m interested in ... Sports
+- 👋 Hi, I’m Sarauta
+- 👀 I’m interested in ... Web Development
 - 🌱 I’m currently learning ...Web development
 - 💞️ I’m looking to collaborate on ... With anyone interested to learn with me.
 - 📫 How to reach me ... rabiukassimmaula7@gmail.com/ +233246232737
